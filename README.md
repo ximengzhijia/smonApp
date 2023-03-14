@@ -26,5 +26,5 @@ lovesmon@163.com
 
 ### cpchat
 
-下载cpchat 搜索 smon69 回复任意内容获得下载地址 [https://miplayu.com/]
+[下载cpchat 搜索 smon69 回复任意内容获得下载地址](https://miplayu.com/)
 
