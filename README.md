@@ -10,8 +10,7 @@
 
 ### 推特
 
-西檬之家SMON
-@devices80297092
+**:bird:西檬之家SMON @devices80297092**
 
 ### TG
 
