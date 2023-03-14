@@ -8,9 +8,9 @@
 
 **[ximengzhijia3.com](https://ximengzhijia3.com)** 
 
-### 推特
+### 推特 :bird:
 
-**:bird:西檬之家SMON @devices80297092**
+**西檬之家SMON @devices80297092**
 
 ### TG
 
